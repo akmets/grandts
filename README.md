@@ -1,0 +1,2 @@
+# grandts
+Grandpashabet – Şansınızı Katlayın! 🍀
